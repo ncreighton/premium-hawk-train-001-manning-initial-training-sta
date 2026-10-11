@@ -1,0 +1,2 @@
+# premium-hawk-train-001-manning-initial-training-sta
+What if have a complete productivity system running today took minutes instead of hours?  Fully documented: every section explained so you know exactly what to customize. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Manning &amp; Initial Training Stage Progress — fully configured and ready to use - Pre
